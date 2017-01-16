@@ -1,1 +1,0 @@
-# rahulnadella.github.io
